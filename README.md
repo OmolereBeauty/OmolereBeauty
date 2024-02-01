@@ -2,7 +2,7 @@
 - 👀 Kindly reach me for any FREELANCE WORK
 - 🌱 I’m currently learning Data Visualization with Power BI
 - 💞️ I’m looking to collaborate on any existing projects.
-- 📫 How to reach me +2348037917527, oobahaya@gmail.com ...
+- 📫 Do reach me on oobahaya@gmail.com
 - ⚡ My fun fact is that I love dancing and singing
 
 <!---
